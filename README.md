@@ -9,10 +9,10 @@ Everything I publish here, I consider 'finished'.
 
 For some poems I've included a small 'About' section. This is just to give some minor background. I've done this hesitantly as I like the subjective nature of poetry so I try not to say too much in these sections.
 
-#### Open Source Poetry???
+## Open Source Poetry???
 Why not? I'm open to pull requests.
 
-#### Order of Writing (pre-repo)
+## Order of Writing (pre-repo)
 1. Hellebore (the first poem I ever fully 'fleshed out')
 2. The Day I Always Knew Would Come
 3. Acquaintance
