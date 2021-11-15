@@ -8,7 +8,7 @@ Others like mirrors as waters flow
 Some shine brightly throughout the night
 And some change swiftly without sleight
 Others fall and twist and turn
-And know no end, they may even return
+And know no end, and may even return
 Back down a path, whence you came
 Now but a shadow, of the same name
 ```
