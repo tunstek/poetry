@@ -18,3 +18,5 @@ Were they only dreams? I do not know.
 
 ### About
 If you have memories of events, but no one who shares them, how can you be so sure they ever even happened?
+
+NOTE: The final line of the first stanza just doesn't feel quite right to me, this will likely be changed.
