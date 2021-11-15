@@ -39,7 +39,7 @@ Tick; tick; tock.
 ```
 
 ### About
-The second poem I ever wrote and I truly hope it will be the darkest poem I ever write. The timing here is important as I attempt to build, not so much suspense, but an uneasiness as you read. My aim was for the ticking to become unbearably monotonous for the reader also.
+The second poem I ever wrote and I truly hope it will be the darkest poem I ever write. The timing here is important as I attempt to build, not so much suspense, but an uneasiness as you read. My aim was for the ticking to become unbearably monotonous for the reader also. Please note that I intended using ';' as a pause of length somewhere between a ',' and a '.'. However, often when I read it, the pause equates to about a second.
 
 Perhaps the ticking of clocks is a little cliché but I feel (perhaps wrongly) that it establishes what I wanted to achieve.
 
