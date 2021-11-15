@@ -3,9 +3,9 @@ Writing poetry has slowly become a passion of mine, especially when I can't slee
 
 So why self-publish? Well I've wanted to make a series for `Acquaintance` since I wrote it (I also have other series ideas in mind) and I've been giving myself excuses. Now I have no excuse.
 
-I feel like I need to explain my writing process: for me, more often than not, I will write the core of a piece in a single sitting and slowly improve small elements over time. Eventually I get to a place where I'm 'happy with it' and I feel like the piece is 'finished'. Sure it can always be 'improved', but it's almost like the piece takes on its own form, it is what it is and that's that. In a way, it just becomes what it 'was always meant to be'. It's difficult to describe, but I'm not saying they're 'perfect' in any way.
+To explain what I mean by 'finished', I feel like I need to explain my writing process: for me, more often than not, I will write the core of a piece in a single sitting and slowly improve small elements over time. Eventually I get to a place where I'm 'happy with it' and I feel like the piece is 'finished'. Sure it can always be 'improved' further, but it's almost like the piece takes on its own form, it is what it is and that's that. In a way, it just matures into what it 'was always meant to be'. It's difficult to describe, but I'm not saying they're 'perfect' in any way. Much like you and me.
 
-Everything I publish here, I consider 'finished'.
+Everything I publish here, I consider 'finished'. Over time I might make minor changes as I feel fit but I can't see any major changes taking place.
 
 For some poems I've included a small 'About' section. This is just to give some minor background. I've done this hesitantly as I like the subjective nature of poetry so I try not to say too much in these sections.
 
