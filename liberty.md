@@ -9,7 +9,7 @@ Two plus two is five
 ‘Beware!’ Posted signs of warning,
 Scattered all along
 ‘Danger to those who do not heed!
-For Freedom and Liberty cannot save you,
+For Freedom and Liberty cannot help you,
 In these awful times of need!’
 
 ‘Come forth brother!
