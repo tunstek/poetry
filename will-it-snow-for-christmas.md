@@ -9,6 +9,7 @@ You’ll have to wear your hat and gloves
 To get home, all warm and snug.
 I won’t be there this year.
 Next year neither.
-In fact - I’m not sure I’ll ever,
+In fact - 
+I’m not sure I’ll ever,
 Make it back.
 ```
