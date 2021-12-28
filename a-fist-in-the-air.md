@@ -3,7 +3,7 @@ A Fist In The Air
 
 How can an adult ever teach children
 About things they’ve never seen?
-Poverty, famine; true equality to them
+Poverty, famine; true equality
 They must have been brought up on the idea,
 Perhaps they even read about it
 And that makes them experts in their field
