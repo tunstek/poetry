@@ -9,13 +9,13 @@ Two plus two is five
 ‘Beware!’ Posted signs of warning,
 Scattered all along
 ‘Danger to those who do not heed!
-For Freedom and Liberty cannot help you,
+For freedom and liberty cannot help you,
 In these awful times of need!’
 
 ‘Come forth brother!
 We shall feed and clothe and bathe you!
 You shall not be afraid!
-Set aside that pesky Freedom,
+Set aside that pesky freedom,
 For it’s only in the way!’
 
 The road was paved with bodies,
