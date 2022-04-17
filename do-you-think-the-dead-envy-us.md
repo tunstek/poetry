@@ -2,7 +2,7 @@
 Do you think the dead envy us?
 
 Do you think the dead can touch,
-The flowing fresh waters of a summers stream -
+The flowing fresh waters of a spring stream -
 The feathers from an eagles wing
 
 Do you think the dead can hear,
