@@ -27,3 +27,5 @@ Go home and be set free'
 
 ### About
 This will be the first in a series of poems about a secret society. The protagonist is somewhat guilt ridden.
+
+Sequel: Initiate
