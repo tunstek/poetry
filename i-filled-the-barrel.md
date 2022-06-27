@@ -11,7 +11,7 @@ I could scarcely think of any other
 So one morning
 I pulled over a large barrel
 And placed it under the tree
-Above, clusters of apples where beginning to grow
+Above, clusters of apples were beginning to grow
 And the birds, they sang their tunes to me
 I placed a water pipe in the barrel and turned on the tap
 As I watched the water flow
